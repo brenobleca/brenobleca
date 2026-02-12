@@ -48,5 +48,5 @@ Ingressar no mercado como **Jovem Aprendiz ou Estagiário em Desenvolvimento**, 
 ---
 
 ## 📫 Contato
-- GitHub: https://github.com/brenobleca  
+- Email: brenobleca@gmail.com 
 - LinkedIn: https://www.linkedin.com/in/breno-bezerra-de-le%C3%A7a-6b673b384/
